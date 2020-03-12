@@ -2,6 +2,9 @@
 
 ## [Cohort Link](https://wework.zoom.com/j/833627860)
 This is a zoom meeting space for your corhort to use. Consider this your virtual table :)
+
+## [Office Hours](https://wework.zoom.com/j/190670103)
+
 ## Important links 
 
 
