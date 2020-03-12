@@ -6,7 +6,7 @@ This is a zoom meeting space for your corhort to use. Consider this your virtual
 ## [Office Hours](https://wework.zoom.com/j/190670103)
 A member of the instruction staff will be available between 3:30-4:40 at the Office Hours Meeting Space
 
-**Please slack a coach if you need assitance. We are here for you**
+**Please slack a coach if you need assistance. We are here for you**
 
 ## Important links 
 
